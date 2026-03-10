@@ -1,1 +1,1 @@
-nejak jsem to celý zapoměl, jsem měl trochu výpadek. Takže se omlouvám za tokou bídnou práci. Poukusím se to doučit
+nejak jsem to celý zapoměl, jsem měl trochu výpadek. Takže se omlouvám za takovou bídnou práci. Poukusím se to doučit.
